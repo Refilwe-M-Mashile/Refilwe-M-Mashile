@@ -4,4 +4,4 @@
 - 🌱 I’m currently learning React & ReactNative
 - 👯 I’m looking to collaborate on passion projects
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: Never skips a cup of coffee
+- ⚡ Fun fact: Never skips a day without a cup of coffee
