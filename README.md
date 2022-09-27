@@ -5,3 +5,6 @@
 - 👯 I’m looking to collaborate on passion projects
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: Never skips a day without a cup of coffee
+
+### Check my schedule here:
+  https://github.com/users/Refilwe-M-Mashile/projects/2
